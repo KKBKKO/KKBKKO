@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+●大家好，很高兴在这个机缘巧合的情况下认识大家。
+●我叫林文豪.来自福建福州,兴趣爱好是运动。
+●写下自己喜欢的一句话。
